@@ -3,11 +3,4 @@ The first of many, maybe, I guess
 
 I don't want to tell you anything about myself, so there!
 
-test
-
-
-
 OK, maybe I'll tell you something about myself... but not now!
-
-OK, maybe I'll tell you something about myself... but not now!
-
